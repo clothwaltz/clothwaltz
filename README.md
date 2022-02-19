@@ -34,6 +34,7 @@ If you like the MBTI and enneagram type stuff, I am an ISFP/ISFJ, 9w1, 945, sp/s
 - I have severe anxiety and diagnosed GAD.
 - Being in groups of people for me is an absolute mess. I will most likely choose the person I'm a closer friend with/feel more comfortable with and whisper them.
 - Even if #nobodyasked, I will still use tonetags/tone indicators randomly.
+- The way I type changes depending on my mood.
 
 
 <h2> This page is still a W.I.P. </h2>
